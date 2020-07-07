@@ -12,6 +12,7 @@
 
 ## Steps (day ahead)
 1. Preheat oven to 300F
+1. Rub meat side of ribs with dry rub
 1. Wrap ribs tightly in foil and bake for 2-3 hours until ribs are tender
 1. Remove from oven and let rest until room temperature
 1. Remove ribs from foil and reserve drippings
