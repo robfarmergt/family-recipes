@@ -2,7 +2,7 @@
 
 ## Ingredient
 
-4 ears corn, husks and silks removed
+- 4 ears corn, husks and silks removed
 - About 2 tsp. vegetable oil
 - 5 pounds russet potatoes, peeled and cut into 2-inch chunks
 - 1/4 cup (1/8 lb.) butter

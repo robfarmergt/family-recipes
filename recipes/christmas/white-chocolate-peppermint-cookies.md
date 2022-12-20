@@ -8,7 +8,7 @@
 - 2 large eggs
 - 1 teaspoon vanilla extract
 - 1/4 teaspoon peppermint extract
-- 2 ^1/2^ cups (300g) all-prupose flour
+- 2 1/2 cups (300g) all-purpose flour
 - 1 teaspoon baking soda
 - 1/2 teaspoon salt
 - 1 cup (170g) white chocolate chips
