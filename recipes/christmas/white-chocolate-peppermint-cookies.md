@@ -26,6 +26,6 @@
 7. Mix in both chips
 8. Use medium scoop then roll in coarse sugar
 9. Lay out cookies on sheet pan
-10. Bake for 14-16 minutes
+10. Bake for 8-9 minutes
 11. Let cool on pan for 5 minutes
 12. Transfer to cooling rack
