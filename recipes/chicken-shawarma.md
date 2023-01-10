@@ -7,8 +7,8 @@
 - 2 teaspoons freshly ground black pepper
 - 2 teaspoons ground cumin
 - 2 teaspoons paprika
-- 1/2 teaspoon turmeric
-- 1/4 teaspoon cayenne
+- 2 teaspoon turmeric
+- 1/4 teaspoon cayenne (optional)
 - 2 pounds boneless, skinless chicken thighs
 - 1 large onion, peeled and quartered
 
